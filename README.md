@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @bpmcosta aka Patty aka Patricia
+- 👀 I’m interested in South Korea, video-games, arts and crafts
+- 🌱 I’m currently learning iOS development
+- 📫 How to reach me bpmcosta@gmail.com
